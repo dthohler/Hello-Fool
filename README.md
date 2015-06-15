@@ -1,2 +1,4 @@
 # Hello-Fool
-Lemme at gihhub
+Lemme at github
+
+kill it, only option. 
